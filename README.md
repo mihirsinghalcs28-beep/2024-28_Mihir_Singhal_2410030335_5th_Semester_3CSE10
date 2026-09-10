@@ -1,0 +1,2 @@
+# 2024-28_Mihir_Singhal_2410030335_5th_Semester_3CSE10
+internship repository
